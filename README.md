@@ -54,7 +54,7 @@ Spesifikasi Rumah yang Mengagumkan
 - Dekat dengan kawasan Pondok Indah
 - Dekat dengan sekolah, rumah sakit, dan pusat perbelanjaan
 
-Jangan lewatkan kesempatan emas ini! Segera hubungi kami di +62 822-8000-3848 atau kunjungi situs Griya Seroja. Realisasikan impian Anda bersama Griya Seroja Pesanggrahan! #GriyaSerojaPesanggrahan #HunianMewahModern #JakartaSelatan
+Jangan lewatkan kesempatan emas ini! Segera hubungi kami di [+62 822-8000-3848](https://wa.wizard.id/b73ac1) atau kunjungi situs Griya Seroja. Realisasikan impian Anda bersama Griya Seroja Pesanggrahan! #GriyaSerojaPesanggrahan #HunianMewahModern #JakartaSelatan
 
 ## URL LENGKAP
 
